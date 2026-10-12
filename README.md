@@ -1,3 +1,3 @@
-# My  WEBSITE
-# HAVE A GREAT DAY!!!
+# MY COOL  WEBSITE
+# how was your day?
 # 
